@@ -1,1 +1,1 @@
-# Synergy_Challenge03
+# Sinergy_Challenge03
